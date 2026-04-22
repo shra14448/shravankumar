@@ -1,2 +1,1 @@
-# shravankumar
 PYNA prac
